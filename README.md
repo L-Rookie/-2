@@ -1,0 +1,1 @@
+https://mbti.lee.com
